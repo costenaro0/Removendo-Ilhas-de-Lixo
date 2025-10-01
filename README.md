@@ -1,1 +1,0 @@
-# Removendo-Ilhas-de-Lixo
